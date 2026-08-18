@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on DS,ML,AI Project Etc
 - 📫 How to reach me just here
 - 😄 Pronouns: ...
-- ⚡ Fun fact: I love cimins ,donuts and coffee. Please give me some 
+- ⚡ Fun fact: I love cimins, cireng isi, any fruits, donuts, pastry, baked glutens and coffee. Please give me some.
 
 <!---
 ciminminggupagiclubs/ciminminggupagiclubs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
